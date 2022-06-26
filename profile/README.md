@@ -31,6 +31,6 @@ It's an open free society, contribute and you'll see yourself becoming a village
 ## Village Stuff :wink: :blush: :smirk: :hugs:
 Let's just say there's a lot of stuff going on in our tribe, but you can find some updates at :drum: :drum: :drum: 
 
-<p align="center"><img width=100% src="/images/weekly.png"></p>
+<p align="center"><img width=100% src="/images/newsletter.png"></p>
 
 Go to twitter and find some funny stuff...
